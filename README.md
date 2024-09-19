@@ -3,4 +3,5 @@
 Github itu asik loh.<br>
 Menambahkan materi baru ke Github.<br>
 Sungguh menyenangkan menyelesaikan materi pembelajaran.<br>
-Materi telah selesai dan saya senang telah menyelesaikannya.
+Materi telah selesai dan saya senang telah menyelesaikannya.<br>
+saatnya menikmati hasil.
